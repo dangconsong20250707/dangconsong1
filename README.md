@@ -15,4 +15,4 @@
 
 我们的SEO策略围绕用户需求展开，页面标题、描述和正文都自然融入了“日本AV免费”“无码”“免费在线观看”等关键词，确保与用户搜索意图高度匹配。同时，分类清晰，视频更新频繁，且每部影片下方都有相关推荐，增加了站内浏览深度，降低跳出率，提升了用户粘性。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong1 ）</span>
